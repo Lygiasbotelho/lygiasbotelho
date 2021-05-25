@@ -1,4 +1,4 @@
-### Eiie, bom te ver aqui, bem-vindo ao meu Github, que encontre o que procuras, muito sucesso para ti!! 👋
+### Eiie, bom te ver aqui, sucesso na sua jornada!! 👋
 
 <!--
 **Lygiasbotelho/lygiasbotelho** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
